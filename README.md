@@ -1,1 +1,1 @@
-2주차 과제입니다
+Week 2 assignment
